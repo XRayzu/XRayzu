@@ -1,4 +1,4 @@
-# Welcome to my GitHub Account! <br/> My Name is XRayzz
+# Welcome to my GitHub Account! <br/> My Name is XRayzu
 
 ``` "In Code vertrauen wir, Bugs zerquetschen wir, und Websites starten wir! 🚀" ```
 
